@@ -1,1 +1,1 @@
-# yolobible.github.io
+# yolobible.com
